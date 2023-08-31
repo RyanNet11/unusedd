@@ -1,2 +1,30 @@
 # redacted-2023-2024
-VEX VRC SHIT!!!!!!!!!!!!!!!
+MOSTYN TWEAKIN NGL \
+\
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+pineapple on pizza is better than BBQ chicken 
